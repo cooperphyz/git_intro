@@ -1,2 +1,1 @@
 Gatlin Cooper
-73
